@@ -4,7 +4,7 @@
 
 1. Hasan Mahmud
 2. Md Shahadat Hossain (Dhaka)
-3. Rasheduzzaman Biddut (Mymensignh)
+3. Rasheduzzaman Biddut (Mymensingh)
 4. Azad Hossan (Cumilla)
 5. Mir Ahamadul Hoque (Chattogram)
 6. Soumik Riyan Madhu (Dhaka)
